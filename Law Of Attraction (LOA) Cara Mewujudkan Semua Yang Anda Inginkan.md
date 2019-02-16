@@ -18,10 +18,12 @@ Untuk mewujudkan Low Of Attraction maka anda harus memenuhi syarat.
 
 2. Berfikir dan Fokus serta di dampingi dengan ACTION
 
-Law Of Attraction, tidak akan bisa tercapai atau terwujud jika tidak di imbangi dengan ACTION. Melatih otak untuk berfikir positif, dan dengan terbiasanya otak dilatih berfikir positif, maka anda bisa menemukan hal atau action yang akan anda lakukan..
+>>>Law Of Attraction, tidak akan bisa tercapai atau terwujud jika tidak di imbangi dengan ACTION. Melatih otak untuk berfikir >positif, dan dengan terbiasanya otak dilatih berfikir positif, maka anda bisa menemukan hal atau action yang akan anda >lakukan..
 
 FAKTA = Berfikir positif maka akan memberikan efek yang positif juga terhadap diri sendiri.
 
 Ingat jika anda menginginkan suatu hal tanpa adanya ACTION, maka lebih baik anda Bermimpi di dalam tidur Anda!!
 
 Sekian Terimakasih.
+
+## https://medium.com/@wahyupambudi/law-of-attraction-loa-cara-mewujudkan-semua-yang-anda-inginkan-6c2331ea42a8
