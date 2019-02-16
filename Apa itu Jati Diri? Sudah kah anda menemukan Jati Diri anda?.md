@@ -51,3 +51,5 @@ Aku adalah Aku, aku bukan dia, meraka atau siapapun.
 Tetap Semangat dan Jangan Menyerah :)
 
 Sekian Wassalamualaikum …
+
+## https://goo.gl/8WUBAA
