@@ -72,3 +72,5 @@ Tanggung Jawab adalah suatu hal yang harus benar benar kita hadapi, segala suatu
 Jika dirimu mendapatkan suatu Masalah maka cobalah untuk Mencari solusi Penyelesaian nya, jika kamu berhasil menyelesaikan masalah tersebut maka kamu akan mendapatkan suatu hal yang luar biasa.!
 
 Salam Sukses…
+
+## https://goo.gl/YFxWtU
