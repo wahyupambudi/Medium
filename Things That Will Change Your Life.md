@@ -47,3 +47,5 @@ SKILL> MENTOR> IMAGING> COMMUNITIES
 
 
 OKEY thank you and succses!
+
+## https://goo.gl/4PWN6y
